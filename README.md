@@ -38,7 +38,3 @@ No matter your business size or industry, we can design a structured cabling sys
 **Contact us today to learn how our structured cabling support in Georgia can help boost your network performance and reliability.**
 
 ---
-
-### Meta Description
-
-Reliable structured cabling support in Georgia offering expert structured cabling Atlanta Georgia and fiber optic cabling Atlanta Georgia services. Get professional, durable, and scalable network solutions tailored to your business needs.
